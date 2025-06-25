@@ -8,3 +8,5 @@ I have combined the underlying principles of my project with the data from the M
 
 
 Refined and uploaded June 2025
+
+More images can be found here: https://sailing.mit.edu/eyesee/
